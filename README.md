@@ -24,6 +24,15 @@ I'm currently searching for an enterprise in France to accept me as an internshi
 
 • New project will come soon 😏
 
+• MonPetitListing => Currently developing the website
+
+• Scarlex (We will soon add social medias) => Project is paused
+
+• Fanszone (https://fanszone.es) => I left the project to somebody else
+
+• TargetPlay (https://t.me/T4rgetPlay) => I left the project to somebody else
+
+
 
 
 
