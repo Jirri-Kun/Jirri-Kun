@@ -9,9 +9,13 @@ I'm currently searching for an enterprise in France to accept me as an internshi
 
 # What I'm currently doing?
 
-> After obtaining my certificate in web dev, I started a few projects (web and mobile dev) and still learning by myself with teachers like  Mosh Hamedani :)
+> After obtaining my certificate in web dev, I started a few projects (web and mobile dev) and still learning by myself with teachers like Mosh Hamedani :)
 
+# What I want to complete for 2024:
 
+⬜ Cybersecurity
+⬜ Mobile app development (Starting with React Native and probably try Kotlin)
+⬜ Docker
 
 
 
