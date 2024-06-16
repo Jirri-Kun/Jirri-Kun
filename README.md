@@ -8,6 +8,7 @@
 Wish to contact me?
 
 ⚠️ only use discord ⚠️
+
 WhatsApp: You really thought I would add this huh? 🤣
 
 ---
