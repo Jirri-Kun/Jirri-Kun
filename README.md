@@ -5,8 +5,10 @@
 # Coding activity
 ![](https://camo.githubusercontent.com/b30d6be527a10256662cb1c7dfa55d07a9c05ecc0c8b8bc67b6b71b2c4a57abd/68747470733a2f2f6769746875622d726561646d652d73746174732e76657263656c2e6170702f6170692f77616b6174696d653f757365726e616d653d446f6e4261677565747465)
 
+Wish to contact me?
 
-
+⚠️ only use discord ⚠️
+WhatsApp: You really thought I would add this huh? 🤣
 
 ---
 [![](https://visitcount.itsvg.in/api?id=escupeme&icon=0&color=0)](https://visitcount.itsvg.in)
