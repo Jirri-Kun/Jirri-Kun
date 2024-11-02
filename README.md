@@ -1,6 +1,6 @@
 # wassup?
 
-I'm Rubem (rub rub) also known as Edateos and Crowbs. I love coding and cheats.
+I'm Brian also known as Edateos and Crowbs. I love coding and cheats.
 
 I'm currently searching for an enterprise in France to accept me as an internship for 18 months :)
 
