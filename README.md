@@ -1,6 +1,6 @@
 # wassup?
 
-I'm Brian also known as Edateos and Crowbs. I love coding and cheats.
+I'm Brian also known as Jirri and Robbert. I love coding and cibersecurity.
 
 I'm currently searching for an enterprise in France to accept me as an internship for 18 months :)
 
@@ -26,11 +26,11 @@ I'm currently searching for an enterprise in France to accept me as an internshi
 
 • MonPetitListing => Currently developing the website
 
-• Scarlex (We will soon add social medias) => Project is paused
+• Azura (https://t.me/AzuraSearchCanal) => Project is paused
 
 • Fanszone (https://fanszone.es) => I left the project to somebody else
 
-• TargetPlay (https://t.me/T4rgetPlay) => I left the project to somebody else
+• SnipeWayMC (https://t.me/edateamos) => I left the project to somebody else
 
 
 
@@ -44,7 +44,7 @@ I'm currently searching for an enterprise in France to accept me as an internshi
 
 Wish to contact me?
 
-⚠️ only use discord ⚠️
+⚠️ only use telegram ⚠️
 
 WhatsApp: You really thought I would add this huh? 🤣
 
